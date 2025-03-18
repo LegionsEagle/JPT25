@@ -1,5 +1,5 @@
 
-#itinerary
+# itinerary
 
 
 Need to purchase red tokyo tower and skytree tickets; usj, jrpass, and pocket wifi are covered
